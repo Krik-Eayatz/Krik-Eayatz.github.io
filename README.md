@@ -1,1 +1,0 @@
-# Krik-Eayatz.github.io
